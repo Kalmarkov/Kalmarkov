@@ -2,8 +2,8 @@
 
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning C++
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me +7 
+- 💞️ I’m looking to collaborate on Matvjuk12
+- 📫 How to reach me +7 950 426 54 21. I'm from Russia
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
